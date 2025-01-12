@@ -1,2 +1,2 @@
 # latihan-branch
-cape gw
+ayo ayo ayo
